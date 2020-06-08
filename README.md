@@ -1,0 +1,2 @@
+# -The-Hazelton-Hotel
+The Hazelton is Toronto’s first luxury boutique hotel situated in the heart of Yorkville. Designed by internationally renowned design firm Yabu Pushelberg, the hotel offers seventy-seven luxurious rooms and suites. ONE Restaurant is celebrity Chef Mark McEwan’s signature dining experience that is not to be missed, while Valmont Spa at the Hazelton is Yorkville’s most exclusive refuge for Toronto locals and visitors alike.
